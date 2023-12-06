@@ -18,5 +18,3 @@ Group Number:
 
 Individual Submitter:
 20301386 Name Abdulllah Jamil Sifat
-
-I also correctly uploaded slide.PPT and report.PDF here.
